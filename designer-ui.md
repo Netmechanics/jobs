@@ -1,4 +1,5 @@
 # UI/UX Designer
+<a href="https://www.netmechanics.gr/el/career-406/ui-ux-designer-994" target="_blank">**:point_right: Apply for this role**</a>
 
 We are looking for a talented UI/UX Designer to join our team in Heraklion and create amazing user experiences.
 

@@ -1,4 +1,5 @@
 # Jr. Front-end Developer
+<a href="https://www.netmechanics.gr/el/career-406/jr-front-end-developer-997" target="_blank">**:point_right: Apply for this role**</a>
 
 **"Are you a front-end coder with an eye for design?"**
 
