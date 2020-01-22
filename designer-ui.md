@@ -1,4 +1,4 @@
-#UI/UX Designer
+# UI/UX Designer
 
 We are looking for a talented UI/UX Designer to join our team in Heraklion and create amazing user experiences.
 
